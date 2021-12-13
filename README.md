@@ -11,6 +11,8 @@ Cookie run people,
 Anon Fillies. 
 Anyone joking about Pedophilla or Necrophila people giving death threats over TT/TD 
 
+I can reclaim the slurs 'faggot and cracker' as i am bi and part white
+
 Usual fandoms Deltarune/UT (I am here the most)
 Obama gaming
 Nintendo/pokemon 
