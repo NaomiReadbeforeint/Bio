@@ -1,5 +1,5 @@
 # Bio
-Hi, I'm Naomi, I don't really feel like wasting time making this all fancy so ill just do it old fashion way. I usually play as my deer oc Naomi!  Or deltarune pones. My pronoun is She/They.
+Hi, I'm Naomi, I don't really feel like wasting time making this all fancy so ill just do it old fashion way. I usually play as my deer oc Naomi!  Or deltarune pones. My pronoun is They.
 And I prefer not to interact with ANYONE under 18, so please respect that!
 I just dont like underaged people, Sorry. I also got semi mild td, but only being covered up constantly, boops kisses are fine i love em, cover me alot and you will be hid 24hr! 
 
